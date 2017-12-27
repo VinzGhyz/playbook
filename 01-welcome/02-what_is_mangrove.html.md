@@ -2,7 +2,7 @@
 title: What is Mangrove
 ```
 
-We are an group of people who **share the same values** and collaborate towards personal growth. We **interact daily**, **help each** other and **build a new lifestyle** closer to our shared ideal. We put efforts into **constantly expanding** to other like-minded people.
+We are a group of people who **share the same values** and collaborate towards personal growth. We **interact daily**, **help each** other and **build a new lifestyle** closer to our shared ideal. We put efforts into **constantly expanding** to other like-minded people.
 
 
 We are gathered around three values : **freedom**, **benevolence** and **openness**.
